@@ -1,6 +1,6 @@
 # Hello There! 
 Perkenalkan nama saya **Elang Satrio Al - Alyyu**.\
-Saya seorang **Pelajar** di [Dicoding](mylms.telkomschools.sch.id).\
+Saya seorang **Pelajar** di [SMK TELKOM SIDOARJO](mylms.telkomschools.sch.id).\
 Follow me at [Linkedin](www.linkedin.com/in/elang-satrio-al-alyyu-59b709281).
  
 <p align="left">
