@@ -1,6 +1,6 @@
 # Hello👋! 
 My Name Is **Elang Satrio Al - Alyyu**.\
-I'm a **Student** of [SMK TELKOM SIDOARJO](mylms.telkomschools.sch.id]\
+I'm a **Student** of [SMK TELKOM SIDOARJO]([mylms.telkomschools.sch.id](https://mylms.telkomschools.sch.id/))\
 Follow me at [Linkedin](www.linkedin.com/in/elang-satrio-al-alyyu-59b709281)
  
 <p align="left">
